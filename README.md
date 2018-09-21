@@ -1,0 +1,2 @@
+# tutur
+Gunakan dengan bijak
